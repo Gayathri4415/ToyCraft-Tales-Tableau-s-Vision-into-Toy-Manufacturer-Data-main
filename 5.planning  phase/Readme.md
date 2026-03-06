@@ -1,1 +1,1 @@
-Assigiment of the project
+Planning Phase of the project

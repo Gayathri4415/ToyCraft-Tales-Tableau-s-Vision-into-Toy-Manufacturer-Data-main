@@ -1,1 +1,1 @@
-assignments of the project
+Ideation phase of the project
